@@ -1,1 +1,1 @@
-# noob
+# noob. I'm lazy
